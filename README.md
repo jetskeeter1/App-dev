@@ -9,3 +9,6 @@ my nineteenth respository
 
 3. Drifting home
 - A movie about a bunch of kids and a spirit of the building gets isekai'd to another world where there is only the ocean and the apartment building's bizzare phenomenom where it becomes a sailing building that floats... magicaly. The apartment building sails in one direction where the kids are stuck in the middle of nowhere and are doing their best to survive by looting other floating building and with the power of friendship and occasional fights until they can find their way home. Much like belle it is also a beautiful movie with amazing compose musis.
+
+4. Violet evergarden
+- Amazing anime that shows how Violet changes after the war and losing her lover and becoming a doll that writes beautiful letters by understanding emotions. Violet goes on to many other places meeting other people write the letter and discover emotions and her humanity.
